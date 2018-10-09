@@ -8,6 +8,7 @@ And what's on the other side,
 Rainbows have visions,
 And never illusions,
 And rainbows have nothing to hide.
+
 And rainbows are beautiful. 
 Having seven different veautiful colours
 So we've been told,
