@@ -18,6 +18,9 @@ Some day we'll find it,
 The rainbow connection,
 The lovers, the dreamers and me.
 
+(And why doth the old raven crow,
+ When there is but snow?)
+
 Who said that every wish,
 Would be heard and answered,
 When wished on a morning star,
