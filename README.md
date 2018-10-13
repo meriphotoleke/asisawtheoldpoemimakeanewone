@@ -3,6 +3,8 @@ A new poem.
 
 The Rainbow Connection
 
+Tuesday
+
 Why are there so many songs about rainbows,
 And what's on the other side,
 Rainbows have visions,
