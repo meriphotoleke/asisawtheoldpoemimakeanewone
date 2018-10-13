@@ -4,6 +4,7 @@ A new poem.
 The Rainbow Connection
 
 Tuesday
+And then comes Wednesday
 
 Why are there so many songs about rainbows,
 And what's on the other side,
